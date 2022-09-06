@@ -1,0 +1,11 @@
+- # F<3
+- Ooii, eu sou o **@lipygreinerkkkj**
+- Ex estudante de colégio militar
+- Tenho 15 anos de pura teimosia
+- Desejo me formar no exército *"fuzileiro naval"* ou "*militar*"
+- Meu [instagram] (https://www.instagram.com/lipygreiner_/)
+- "O prazer no trabalho aperfeiçoa a obra."
+-
+-
+-
+-
